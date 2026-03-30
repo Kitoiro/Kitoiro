@@ -19,3 +19,7 @@ I play: Pony Town, Roblox, Minecraft, DBD, Manhunt, Cry of Fear, Hotline Miami, 
 
 I know a lot of things: DBD, Manhunt, Cry of Fear, Hotline Miami, Marvel Rivals, CS2, "No, I'm not human", Sims 4, FnаF, Undertale, Hazbin Hotel, CoD, Re (Resident Evil), Mineshield, Poppy Playtime, RU Twitch, Underground Russian (superficially), Gorillaz, Postal, Altushka for Skuf, KinitoPet, Metro, Silent Hill, The Last of Us (a little), CH (Countryhumans), the rest I may not remember:<
 
+<div id="header" align="center">
+  <img src="
+https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzg3eHB4dmRmc2FzbGdnMzhwYzA4emw2MzU2bGFtaHpmNm9jeTN6MSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/4NkvL7F4bGtA58TBaz/giphy.gif" width="300"/>
+</div>
