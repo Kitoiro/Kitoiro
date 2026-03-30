@@ -6,9 +6,9 @@
 
 играю в: пони таун,роблокс,майнкрафт,дбд,mаnhunt,Cry of Feаr,Hotline Miаmi,Mаrvel Rivаls,Cs2, "Нет,я не человек",sims 4,FnаF.
 
-шарю же я за многое: дбд,mаnhunt,Cry of Feаr,Hotline Miаmi,Mаrvel Rivаls,Cs2, "Нет,я не человек",sims 4,FnаF,андертейл,Отель Хазбин,CoD,Re(resident evil),майншилд,поппи плейтайм,ру твич,андеграунд русский(поверхностно),гориллаз,постал,альтушка для скуфа,кинитоПет,метро,сайлент хилл,the lаst of us(немного),ch(Countryhumans),остольное я могу не помнить:<ыф
+шарю же я за многое: дбд,mаnhunt,Cry of Feаr,Hotline Miаmi,Mаrvel Rivаls,Cs2, "Нет,я не человек",sims 4,FnаF,андертейл,Отель Хазбин,CoD,Re(resident evil),майншилд,поппи плейтайм,ру твич,андеграунд русский(поверхностно),гориллаз,постал,альтушка для скуфа,кинитоПет,метро,сайлент хилл,the lаst of us(немного),ch(Countryhumans),остольное я могу не помнить:<
 <div id="header" align="center">
-  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExejVqaG81aGxvNXMzMXRreGFsYXY2c2lsaDVkczhva3p2ZTl1OTBwdyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/8LKb9mwpkvddwknHTB/giphy.gif" width="400"/>
+  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzg3eHB4dmRmc2FzbGdnMzhwYzA4emw2MzU2bGFtaHpmNm9jeTN6MSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/4NkvL7F4bGtA58TBaz/giphy.gif" width="1000"/>
 </div>
 for English:
 
