@@ -22,7 +22,7 @@ for English:
 
 I'm angag/kitoiro; pronouns as written: she/her; I often play on the first Russian or the general first server; I often AFK; I draw and just love to hang out with someone; if I don't have the c+h tag, you can still join <3, but that's about it :p
 
-DON'T: If you don't have a с+h, please don't sit down; don't close; if you see I'm AFK, don't bother me (except for friends).
+DON'T: If I don't have c+h, please don't sit down; don't close; if you see I'm AFK, don't bother me (except for friends).
 
 If you want to meet/be friends, don't hesitate to PM me:3, because I often set the game to background.
 
