@@ -3,10 +3,9 @@
 
 для ру:
 
-я ангаг/китоиро; местоимения как и писала она/её; сижу часто на первом русском или же на общем первом сервере; я часто в афк;рисую и просто люблю почидеть с кемто; еслу у меня нет метки c+h, то можете всё равно сесть<3 а так вроде всё:р
+я ангаг/китоиро; местоимения как и писала она/её; сижу часто на первом русском или же на общем первом сервере; я часто в афк;рисую и просто люблю почидеть с кемто; еслу у меня нет метки c+h, то можете всё равно сесть<3 общаюсь только с людьми старше 12-ти лет,а так вроде всё:р
 
 НЕЛЬЗЯ: если нет с+h,то не садитесь пожалуйста; не закрывайте; если видите что я в аfk,то не надо лезть(кроме друзей).
-
 если вы хотите познакомится/подружиться,то не стесняйтесь:3 пишите в лс,ибо я часто ставлю игру на Фон.
 
 играю в: пони таун,роблокс,майнкрафт,дбд,mаnhunt,Cry of Feаr,Hotline Miаmi,Mаrvel Rivаls,Cs2, "Нет,я не человек",sims 4,FnаF.
@@ -20,7 +19,7 @@
 
 for English:
 
-I'm angag/kitoiro; pronouns as written: she/her; I often play on the first Russian or the general first server; I often AFK; I draw and just love to hang out with someone; if I don't have the c+h tag, you can still join <3, but that's about it :p
+I'm angag/kitoiro; pronouns as written: she/her; I often play on the first Russian or the general first server; I often AFK; I draw and just love to hang out with someone; if I don't have the c+h tag, you can still join <3,I only communicate with people over 12 years old, but that's about it :p
 
 DON'T: If I don't have c+h, please don't sit down; don't close; if you see I'm AFK, don't bother me (except for friends).
 
