@@ -53,6 +53,5 @@
 𝕯𝕭𝕯, 𝕸𝖆𝖓𝖍𝖚𝖓𝖙, 𝕮𝖗𝖞 𝖔𝖋 𝕱𝖊𝖆𝖗, 𝕳𝖔𝖙𝖑𝖎𝖓𝖊 𝕸𝖎𝖆𝖒𝖎, 𝕸𝖆𝖗𝖛𝖊𝖑 𝕽𝖎𝖛𝖆𝖑𝖘, 𝕮𝕾2, "𝕹𝖔, 𝕴'𝖒 𝖓𝖔𝖙 𝖍𝖚𝖒𝖆𝖓", 𝕾𝖎𝖒𝖘 4, 𝕱𝖓𝖆𝕱, 𝖀𝖓𝖉𝖊𝖗𝖙𝖆𝖑𝖊, 𝕳𝖆𝖟𝖇𝖎𝖓 𝕳𝖔𝖙𝖊𝖑, 𝕮𝖔𝕯, 𝕽𝖊 (𝕽𝖊𝖘𝖎𝖉𝖊𝖓𝖙 𝕰𝖛𝖎𝖑), 𝕸𝖎𝖓𝖊𝖘𝖍𝖎𝖊𝖑𝖉, 𝕻𝖔𝖕𝖕𝖞 𝕻𝖑𝖆𝖞𝖙𝖎𝖒𝖊, 𝕽𝖀 𝕿𝖜𝖎𝖙𝖈𝖍, 𝖀𝖓𝖉𝖊𝖗𝖌𝖗𝖔𝖚𝖓𝖉 𝕽𝖚𝖘𝖘𝖎𝖆𝖓 (𝖘𝖚𝖕𝖊𝖗𝖋𝖎𝖈𝖎𝖆𝖑𝖑𝖞), 𝕲𝖔𝖗𝖎𝖑𝖑𝖆𝖟, 𝕻𝖔𝖘𝖙𝖆𝖑, 𝕬𝖑𝖙𝖚𝖘𝖍𝖐𝖆 𝖋𝖔𝖗 𝕾𝖐𝖚𝖋, 𝕶𝖎𝖓𝖎𝖙𝖔𝕻𝖊𝖙, 𝕸𝖊𝖙𝖗𝖔, 𝕾𝖎𝖑𝖊𝖓𝖙 𝕳𝖎𝖑𝖑, 𝕿𝖍𝖊 𝕷𝖆𝖘𝖙 𝖔𝖋 𝖀𝖘 (𝖆 𝖑𝖎𝖙𝖙𝖑𝖊), 𝕮𝕳 (𝕮𝖔𝖚𝖓𝖙𝖗𝖞𝖍𝖚𝖒𝖆𝖓𝖘), 𝖙𝖍𝖊 𝖗𝖊𝖘𝖙 𝕴 𝖒𝖆𝖞 𝖓𝖔𝖙 𝖗𝖊𝖒𝖊𝖒𝖇𝖊𝖗:<
 
 <div id="header" align="center">
-  <img src="
-https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzg3eHB4dmRmc2FzbGdnMzhwYzA4emw2MzU2bGFtaHpmNm9jeTN6MSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/4NkvL7F4bGtA58TBaz/giphy.gif" width="300"/>
+  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWVnMWoydHJkNDh2MXppbjJ4aWF3MTlhYm53MXRuNzVybHByc2U1ZiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/cBLkIvj5T7ZwOTBi68/giphy.gif" width="800"/>
 </div>
